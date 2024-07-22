@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yashasvigawaria25
 - 👀 I’m interested in learning languages.
-- 🌱 I’m currently learning java.
+- 🌱 I’m currently learning everything.
 - 💞️ I’m looking to collaborate on open-source projects.
 - 📫 How to reach me: https://www.linkedin.com/in/yashasvi-gawaria25/
 - 😄 Pronouns: He/Him
